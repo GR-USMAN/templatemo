@@ -1,1 +1,1 @@
-https://gr-usman-01.github.io/templatemo/
+https://gr-usman.github.io/templatemo/
